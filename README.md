@@ -1,4 +1,4 @@
-![](https://media.discordapp.net/attachments/1077051581633151067/1203804958504386650/Academy3.png?ex=65d26dbb&is=65bff8bb&hm=480732bbdeaa84ae402ed62d257debf29e15e6fb30c20e99938c1762feb01b9e&=&format=webp&quality=lossless)
+![](https://cdn.discordapp.com/attachments/1077051581633151067/1204946296436162611/Academy5.png?ex=65d694af&is=65c41faf&hm=0fc5de68ea8009858d30a05027548faa91221196a322079e1e67f2d400d6e8ff&)
 
 # Exercícios completos
 <p>Student at Cubos Academy since 15/01</p>
